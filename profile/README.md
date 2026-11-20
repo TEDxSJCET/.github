@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/ff947dd1-47d9-4780-ae2d-01346c311a76)
+<img width="4175" height="1000" alt="Cover" src="https://github.com/user-attachments/assets/84b7038f-4822-4709-9040-40a39f85da7d" />
